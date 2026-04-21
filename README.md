@@ -4,7 +4,7 @@
 
 <p align="center"> <img width="480" height="331" alt="image" src="https://github.com/user-attachments/assets/9ff07c2b-a768-4728-80f3-a9c245305815" />
   
-<p align="center"> ⸝⸝⸝ ♪ ᴍᴀʀᴄ / ʀᴏᴅɴᴇʏ ♪ ⸝⸝⸝
+<p align="center"> ⸝⸝⸝ ♪ ʀᴏᴅɴᴇʏ / ᴍᴀʀᴄ ♪ ⸝⸝⸝
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
 
 
