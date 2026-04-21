@@ -7,7 +7,9 @@
 <p align="center"> ⸝⸝⸝ ♪ ᴍᴀʀᴄ / ʀᴏᴅɴᴇʏ ♪ ⸝⸝⸝
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
 <p align="center"> 🎰🩵💿
-  
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=00d9dd&interchange=false&profanity=false&bar_color=63fff7&bar_color_cover=false&mode=dark)
 
 <p align="center"> <img width="3606" height="1607" alt="image" src="https://github.com/user-attachments/assets/820c9170-fe78-4d23-846d-a0d4740f543e" />
+
+
+
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&cover_image=true&theme=spotify-embed&show_offline=false&background_color=00d9dd&interchange=false&profanity=false&bar_color=63fff7&bar_color_cover=false&mode=dark)
