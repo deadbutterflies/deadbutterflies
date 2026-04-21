@@ -6,9 +6,13 @@
   
 <p align="center"> ⸝⸝⸝ ♪ ᴍᴀʀᴄ / ʀᴏᴅɴᴇʏ ♪ ⸝⸝⸝
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
+
+<p align="center"> <a href="https://pronouns.cc/@Haunted)" target="_blank">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a>
+  
 <p align="center"> 🎰🩵💿
 
 <p align="center"> <img width="3606" height="1607" alt="image" src="https://github.com/user-attachments/assets/820c9170-fe78-4d23-846d-a0d4740f543e" />
+
 
 
 
