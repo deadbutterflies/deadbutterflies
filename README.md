@@ -2,7 +2,8 @@
 
 <p align="center"> " 𝙄 𝙘𝙖𝙣'𝙩 𝙥𝙡𝙖𝙮 𝙖 𝙝𝙖𝙥𝙥𝙮 𝙩𝙪𝙣𝙚 𝙤𝙣 𝙢𝙮 𝙤𝙬𝙣 , 𝙨𝙤 𝙨𝙩𝙖𝙮 𝙗𝙮 𝙢𝙮 𝙨𝙞𝙙𝙚 . . . "
 
-<p align="center"> <img width="480" height="331" alt="image" src="https://github.com/user-attachments/assets/9ff07c2b-a768-4728-80f3-a9c245305815" />
+<p align="center"> <img width="480" height="326" alt="image" src="https://github.com/user-attachments/assets/db5f23ef-f9e1-4b3b-8554-beffab437a3f" />
+
   
 <p align="center"> ⸝⸝⸝ ♪ ʀᴏᴅɴᴇʏ / ᴍᴀʀᴄ ♪ ⸝⸝⸝
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
