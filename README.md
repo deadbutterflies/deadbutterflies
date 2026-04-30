@@ -9,7 +9,7 @@
 <p align="center"> ⸝⸝⸝ ♪ HE/HIM  •  UNLABELED ♪ ⸝⸝⸝
 
 
-<p align="center"> <a href="https://pronouns.cc/@Haunted" target="_blank">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a> <a href="https://www.instagram.com/haunted_teacupz?igsh=eTV3Ym5jNGZ4dXYw&utm_source=qr" target="_blank">ɪɴꜱᴛᴀ</a> <a href="https://bagoratz.straw.page" target="_blank">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+<p align="center"> <a href="https://pronouns.cc/@Haunted" target="_blank">ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ</a> <a href="https://songmachine.atabook.org" target="_blank">ᴀᴛᴀ</a> <a href="https://bagoratz.straw.page" target="_blank">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
   
 <p align="center"> 🎰🩵💿
 
