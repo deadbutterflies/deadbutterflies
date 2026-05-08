@@ -5,4 +5,6 @@
 </p>
 <p align="center"> <img width="500" height="506" alt="image" src="https://github.com/user-attachments/assets/38f05d58-5003-4a56-9be9-6475c72c486b" />
 
-<p align="center"> revampimg/wip bruh
+<p align="center"> ════────✦︎────════
+    
+<p align="center"> <a href="https://pronouns.cc/@songmachine" target="_blank">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐂𝐂</a> <a href="https://www.last.fm/user/shmeebz" target="_blank">𝐋𝐚𝐬𝐭.𝐅𝐌</a> <a href="https://songmachine.atabook.org" target="_blank">𝐀𝐓𝐀𝐛𝐨𝐨𝐤</a> 
