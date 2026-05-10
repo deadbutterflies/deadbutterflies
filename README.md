@@ -9,4 +9,4 @@
 
 <p align="center"> ════────✦︎────════
     
-<p align="center"> <a href="https://pronouns.cc/@songmachine" target="_blank">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐂𝐂</a> <a href="https://www.last.fm/user/shmeebz" target="_blank">𝐋𝐚𝐬𝐭.𝐅𝐌</a> <a href="https://songmachine.atabook.org" target="_blank">𝐀𝐓𝐀𝐛𝐨𝐨𝐤</a> 
+<p align="center"> <a href="https://pronouns.cc/@toothlily" target="_blank">𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐂𝐂</a> <a href="https://www.last.fm/user/shmeebz" target="_blank">𝐋𝐚𝐬𝐭.𝐅𝐌</a> <a href="https://songmachine.atabook.org" target="_blank">𝐀𝐓𝐀𝐛𝐨𝐨𝐤</a> 
